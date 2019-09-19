@@ -1,2 +1,2 @@
-# Thermit.io
-Thermit's Page
+# Ziyang's Page
+Ziyang's Page
